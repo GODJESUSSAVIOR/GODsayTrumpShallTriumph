@@ -18,3 +18,9 @@ references documents links :
 https://docs.google.com/document/d/1xgLbu3D21Q9tOElzEdm5PuRD17IxPs4B
 
 ✝️❤️ GOD YHWH ELOHIM SAYS " TRUMP SHALL TRIUMPH " ❤️✝️
+
+.
+.
+.
+
+https://tiny.cc/GJS
